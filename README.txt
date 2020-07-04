@@ -1,4 +1,7 @@
 # github-ex4
+
+LOCAL
+
 Lucas ipsum dolor sit amet binks oola raymus farlander c'baoth priapulin talz ima-gun falleen yavin. Ima-gun darth antemeridian cal c'baoth. Duro khai joelle cabasshite skywalker darpa nadon. Luminara boss veers tiin maris moore. Bail mara cliegg palpatine jerec mccool hutta anthos. Drovian jerec kyle jeremoch padmé dantari. Dagobah bib fett bren vong cad. Lars aka su hutt hypori wookiee. Ubb droch melodie iego beru. Quelli vong senex chommell asajj boz miraluka. Chommell skywalker marek p'w'eck.
 
 Feeorin iv bertroff ozzel aayla lyn. Dooku san chirrpa aqualish geonosian darth shistavanen sebulba. Fisto terentatek tarkin trioculus sabé marek palpatine. Vader ig-88 even skywalker hapan. Jettster mon noa gev vulptereen ablajeck darklighter droopy lando. Whill -1b utapau fett bane solo skywalker fey'lya. Pau'an yoda gamorrean djo. Var natasi sly skakoan axmis habassa jodo jade danni. Troig sanyassan kit gordin antilles logray galen. Geonosian joelle anthos cb-99 moff rukh cathar jin'ha. Bothan panaka lannik orus lahara shimrra kashyyyk cornelius latter.
